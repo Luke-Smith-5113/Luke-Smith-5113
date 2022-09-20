@@ -5,4 +5,4 @@
 - 💬 Ask me about anything (answers vary)
 - 📫 How to reach me: don't /j
 - 😄 Pronouns: He/Him
-- ⚡ Fun facts: Despite being named fifth edition DnD 5e is actually the twelfth edition of the game
+- ⚡ Fun fact: Nobody can prove that I wasn't the billionth view on Never Gonna Give You Up by Rick Astley
